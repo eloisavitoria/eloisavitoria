@@ -2,4 +2,6 @@
 
 ### Você pode entrar em contato comigo🤝
 
-_ @vitoria_lox_🐥
+@vitoria_lox🐥
+
+![](https://media.tenor.com/TTT0wHKiKkMAAAAM/dog-brush.gif)
