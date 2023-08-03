@@ -4,4 +4,5 @@
 
 @vitoria_lox🐥
 
-![](https://media.tenor.com/TTT0wHKiKkMAAAAM/dog-brush.gif)
+   ![](https://github.com/eloisavitoria/eloisavitoria/assets/140719656/dc16a4fa-89c9-4505-8b85-6bf10e5ef322)
+
